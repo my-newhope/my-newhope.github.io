@@ -5,4 +5,4 @@ title: About
 
 ## About
 
-Hi, nice to meet you.
+Hi, guys join me in the inspiring jornny  .
